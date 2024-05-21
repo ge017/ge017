@@ -1,16 +1,13 @@
-## Hi there 👋
+## meu perfil 🩷
+Meu nome e Geovana
+- sou aluna do ensino medio  
+- gosto de mecher no celular nas horas vagas 
+- gosto de cozinhar mais só quando quero
+- Não gosto muito de sair,mais de vez enquanto e bom 
 
-<!--
-**ge017/ge017** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+  ## para entrar em contato comigo ✉
+  00001113477040sp@al.educacao.sp.gov.br
+  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media1.tenor.com/m/OUdMZ_HmK_4AAAAC/i-love-you-love.gif)
