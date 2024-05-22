@@ -1,9 +1,9 @@
 ## meu perfil 🩷
-Meu nome e Geovana
+Meu nome é Geovana
 - sou aluna do ensino medio  
 - gosto de mecher no celular nas horas vagas 
 - gosto de cozinhar mais só quando quero
-- Não gosto muito de sair,mais de vez enquanto e bom 
+- Não gosto muito de sair,mais de vez enquanto é bom 
 
 
   ## para entrar em contato comigo ✉
